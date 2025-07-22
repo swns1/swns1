@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some project with you guys
 - 📫 How to reach me in github dm 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm only 19
+- ⚡ Fun fact: I'm only 20
 
 <!---
 swns1/swns1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
